@@ -2,7 +2,7 @@
 - 👀 i need big buyer
 - 🌱 I'm a textnow and Google Voice seller 
 - 💞️ looking company for bulk messaging software sale
-- 📫 
+- telegram: @SocialAccountHub
 - 😄
 - ⚡ 
 
